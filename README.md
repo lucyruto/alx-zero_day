@@ -1,1 +1,1 @@
-# 🍹join me in this chapter
+# 🍹Join me as I embark on this amazing journey.
