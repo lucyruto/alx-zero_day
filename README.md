@@ -1,1 +1,1 @@
-# 🍹Join me as I embark on this amazing journey.
+# 🍹Join me as I embark on this amazing journey😎.
