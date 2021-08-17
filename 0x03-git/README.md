@@ -1,1 +1,1 @@
-# Remember to drink lots of 💧�
+# Remember to drink lots of 💧
